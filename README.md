@@ -1,2 +1,2 @@
-Fuck you \n
+Fuck you /n
 this means NOTHING
